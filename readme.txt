@@ -14,4 +14,5 @@ hqs is nervous!
 
 Work hard!
 2021/07/13
+Do what you like!
 Never give up
