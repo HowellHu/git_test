@@ -13,4 +13,5 @@ hqs is nervous!
 hqs is nervous!
 
 Work hard!
-2021/007/13
+2021/07/13
+Never give up
